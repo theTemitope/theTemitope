@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @theTemitope
-- 👀 I’m interested in Business/ Product Analysis
+- 👀 I like what I do, I do what I like.
 
 
 <!---
